@@ -1,0 +1,1 @@
+A political party within [[Saltmarsh]]. Loyal to the kingdom of [[Keoland]]. Comprised mostly of Dwarves, outsiders, and the town guard. 

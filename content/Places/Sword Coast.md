@@ -1,0 +1,1 @@
+The western coast of [[Faerun]]. Where our adventure takes place.

@@ -1,0 +1,2 @@
+Halfing Fighter/Rogue. Very fancy and cool, very smol. Got kinda a spiciness to her? I like her!
+She doesn't like calling people her friends - accidents happen on the road; its life and happens. But if they aren't friends, it doesnt hurt as much... right?

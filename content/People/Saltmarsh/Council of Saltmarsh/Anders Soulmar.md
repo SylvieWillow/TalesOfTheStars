@@ -1,0 +1,1 @@
+Member of the [[Council of Saltmarsh]]. A [[Loyalist]] noble from [[Keoland]], youngest member and well liked. Has a huge fleet of fishing boats. 

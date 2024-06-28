@@ -1,0 +1,1 @@
+The continent(?)/world our story takes place in. Home to the [[Sword Coast]] and kingdom of [[Keoland]].

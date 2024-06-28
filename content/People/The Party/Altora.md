@@ -1,0 +1,1 @@
+Eladrin Warlock - She seems very kind, like she has a good head on her shoulders. Seems like she was also kinda not happy we blantantly just.. robbed a tomb? I mean it sounds like the previous owner was a jerk, but, idk eh.

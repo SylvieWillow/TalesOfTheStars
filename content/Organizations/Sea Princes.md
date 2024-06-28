@@ -1,0 +1,3 @@
+A group of pirates that pillage and plunder, and otherwise make jack sparrow proud. Used to be a lot stronger, but got into a full scale war with [[Keoland]]. The Sea princes lost, but were not fully rooted out. Now, they are rumored to be coming back, stronger than before...
+
+Rumored to be behind the sunken ships from Saltmarsh, and likely the current occupants of the [[Alchemist's House]].

@@ -1,0 +1,1 @@
+A political party in [[Saltmarsh]]. Wants to keep Saltmarsh a quaint, fishing town. Kinda racist? Comprised mostly of humans

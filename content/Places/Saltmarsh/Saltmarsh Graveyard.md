@@ -1,0 +1,2 @@
+Graveyard on the outskirts of Saltmarsh. Tended by [[Craig]] Undead were once infesting this area, but have since been cleared out. In the center is an icon to [[Soulmar]] and a tomb - instead that tomb was a body with embroidered leather armor, a water elemental stone, and an inscription. 
+"*[[The Scarlet Bloodline| The Scarlet bloodline lives...]]*"

@@ -1,0 +1,1 @@
+Member of the [[Council of Saltmarsh]]. Second in command to [[Eda Oweland]], likely [[Traditionalist]] by proxy.
