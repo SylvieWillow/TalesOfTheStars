@@ -1,6 +1,6 @@
 
 
-Town located on the [[Sword Coast]]. Mostly a fishing village, though has a dwarven mining operation, and some nobles from [[Feoland]]. Largely untrusting of magic. [[Caladek]] is the only magic user in town that is relatively well known (besides us).
+Town located on the [[Sword Coast]]. Mostly a fishing village, though has a dwarven mining operation, and some nobles from [[Keoland]]. Largely untrusting of magic. [[Caladek]] is the only magic user in town that is relatively well known (besides us).
 Has had issues with pirates recently , attacking their fishing -- the main export of the town.
 
 Pirates have largely been working with the [[Sea Princes]]. They may have returned..
