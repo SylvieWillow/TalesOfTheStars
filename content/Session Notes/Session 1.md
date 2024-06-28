@@ -1,0 +1,1 @@
+Arrived in Saltmarsh. Picked up a bounty for a thief for caravans to and from the mining encampment. 200 GP total. On way to mining camp now, worked between voyages to arrive at saltmarsh. Met with group of adventurers. One had a marvelous pigments somehow?????. Used that to set up a trap for the caravan. Trap triggered, 3 bandits total, one spellcaster. Pretty strong.
