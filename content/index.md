@@ -1,4 +1,4 @@
-This is where I am keeping track of all of Willows notes. Hyperlinks are present where relevant. I will keep this updated after each session if I remember. Hopefully it wont take me as long next time with only one session to go through..
+This is where I am keeping track of all of Willow's notes. Hyperlinks are present where relevant. I will keep this updated after each session if I remember. Hopefully it wont take me as long next time with only one session to go through..
 
 You can use the sidebar to scroll through everything!
 
