@@ -1,4 +1,4 @@
-A "Haunted" house outside of [[Saltmarsh]]. There are constant lights, and screams echoing from it. Sounds awful to live near tbh. People go into the house, but never come out. 
+A "Haunted" house outside of [[Places/Saltmarsh/Saltmarsh]]. There are constant lights, and screams echoing from it. Sounds awful to live near tbh. People go into the house, but never come out. 
 Legend says it was home to an alchemist who perfected transmutation from iron into gold. The house is said to be haunted with deadly ghosts, but also vast piles of gold...
 
 

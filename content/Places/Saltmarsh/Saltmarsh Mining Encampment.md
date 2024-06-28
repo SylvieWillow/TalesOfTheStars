@@ -1,1 +1,1 @@
-A small mining encampment south of [[Saltmarsh]]. Mines silver! Owned/run by [[Manistrad Copperlocks]] and the rest of the dwarven Crew(tm). Seems like a nice place, was a good place to get work, and some lunch!
+A small mining encampment south of [[Places/Saltmarsh/Saltmarsh]]. Mines silver! Owned/run by [[Manistrad Copperlocks]] and the rest of the dwarven Crew(tm). Seems like a nice place, was a good place to get work, and some lunch!

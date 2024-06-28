@@ -1,1 +1,1 @@
-The kingdom in which [[Saltmarsh]] resides. Currently ruled by [[King Bertos Scotti]]
+The kingdom in which [[Places/Saltmarsh/Saltmarsh]] resides. Currently ruled by [[King Bertos Scotti]]
