@@ -1,5 +1,2 @@
 Half elf, Warlock/Sorcerer
-Also seems very kind :3 Every now and then when I look at her, it seems like someone else is there, staring back..
-
-
-{Kylie is a warlock who is succumbing to the influence of her patron. The patron is contained within the staff}
+Also seems very kind :3 Every now and then when I look at her, it seems like someone else is there, staring back.. I wonder what her patron is like? I feel it coalescing in her staff. Its almost like its getting stronger some times. I hope she can handle it!
